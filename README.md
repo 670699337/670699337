@@ -6,4 +6,4 @@
 
 🌱 I am interested in Artificial Intelligence especially Natural Language Processing related topics.
 
-😄 I love gaming and traveling.
+😄 I love gaming and traveling!
